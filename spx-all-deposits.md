@@ -1,0 +1,7 @@
+
+SPX / ALL DEPOSITS
+
+    SP:SPX/FRED:DPSACBW027SBOG*1000*1000*1000*1000
+
+![alt text](image.png)
+
