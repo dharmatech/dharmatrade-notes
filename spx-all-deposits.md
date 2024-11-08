@@ -12,3 +12,11 @@ SPX / ALL DEPOSITS
 </details>
 
 The yellow line is around SPX 7500 if deposits remain near where they are now.
+
+<details>
+
+<summary>twitter</summary>
+    
+https://x.com/dharmatrade/status/1854729011982971079
+    
+</details>
