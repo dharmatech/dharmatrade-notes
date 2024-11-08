@@ -10,3 +10,5 @@ SPX / ALL DEPOSITS
 ![image](https://github.com/user-attachments/assets/6e7a901a-e621-4c3f-8107-1e94df894bea)
 
 </details>
+
+The yellow line is around SPX 7500 if deposits remain near where they are now.
