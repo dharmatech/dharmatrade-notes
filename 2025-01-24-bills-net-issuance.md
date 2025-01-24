@@ -13,3 +13,5 @@ However, RRP only dropped by $27B:
 ![image](https://github.com/user-attachments/assets/a1476884-dac0-4aa8-af22-a335a9bc943c)
 
 Goes against the assumption you'll often see mentioned that money in RRP moves to bills.
+
+https://x.com/dharmatrade/status/1882904201086590977
