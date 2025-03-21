@@ -16,3 +16,4 @@ FYTD for 2025 as of March: $41B
 
 I.e. 2025 in March has already surpassed all of 2024.
 
+https://x.com/dharmatrade/status/1902988919567946214
